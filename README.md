@@ -1,2 +1,22 @@
 # pagina-consultoria
-💪 Valdeir Treinador | Consultoria Fitness. Treinos personalizados de musculação, emagrecimento e condicionamento físico. Consultoria online e presencial com foco em saúde, desempenho e qualidade de vida. Supere seus limites, evolua a cada treino e conquiste seus objetivos com acompanhamento profissional e dedicação! 🚀🔥
+💪 Valdeir Treinador | Consultoria Fitness
+
+Transforme seu corpo, supere seus limites e conquiste seus objetivos! 🚀
+
+Oferecemos consultoria esportiva online e presencial, com treinos personalizados de musculação, orientação para emagrecimento e acompanhamento focado na evolução individual de cada aluno.
+
+🎯 Nossos serviços:
+
+🏋️ Treinos personalizados de musculação
+
+🔥 Consultoria para emagrecimento
+
+📱 Acompanhamento online
+
+💪 Orientação para ganho de força e condicionamento físico
+
+📈 Planejamento de treinos de acordo com seus objetivos
+
+Nosso compromisso é ajudar você a construir uma rotina mais ativa, saudável e consistente, respeitando sua individualidade e seu ritmo.
+
+📩 Entre em contato e comece sua jornada fitness com a Valdeir Treinador!
